@@ -1,4 +1,4 @@
-# Welcome to my blog
+# Welcome to this very first page of R&S time is scarce and I gotta be hurry
 
-I'm glad you are here. I plan to talk about ...
 Love for love.
+Lycu_0806
